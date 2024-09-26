@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Bintang Sava Ozora Panggabean
 
-NIM : 
+NIM : 607062400095
 
 ## Instruksi
 
